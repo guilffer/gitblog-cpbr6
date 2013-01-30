@@ -1,0 +1,1 @@
+Sempre quis vir a CPBR, mas nunca tive uma oportunidade concreta. Essa edição, a CPBR6, é a primeira de muitas que pretendo vir. Daí já é possível ver o quanto estou gostando!
